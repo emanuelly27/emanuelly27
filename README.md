@@ -8,7 +8,7 @@
 
 ### Voçe entrar em contato comigo 
 
-emanuelly.alve.pereira2escola.pr.gov.br
+emanuelly.alve.pereira@escola.pr.gov.br
 
 @emanuelly27
 
